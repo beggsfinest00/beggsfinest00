@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Dallas Holbrook
+- 👀 I’m interested in Games and Anime
+- 🌱 I’m currently learning programing and game development 
+- 💞️ I’m looking to collaborate on Games and game creation
+- 📫 How to reach me 9188943383 or at dallashol14@gmail.com 
